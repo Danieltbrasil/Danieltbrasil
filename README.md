@@ -1,4 +1,4 @@
-### Olá me chamo Daniel Teixeira Brasil, entusiasta e estudante de tecnologia 👋😄!!
+## Olá me chamo Daniel Teixeira Brasil, estudante de tecnologia 👋😄!!
 
   ##
 
